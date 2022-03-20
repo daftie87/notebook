@@ -1,2 +1,0 @@
-dafties notes.
-welcome.
